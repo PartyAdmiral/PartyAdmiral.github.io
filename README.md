@@ -1,0 +1,1 @@
+# partyadmiral.github.io
